@@ -6,7 +6,6 @@
 
 
 ![download](https://user-images.githubusercontent.com/83384315/172971146-799f1644-2623-4b7b-a438-0ef169652916.jpeg)
-f39d1e5c8.png)
 
 
 
